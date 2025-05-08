@@ -1,3 +1,5 @@
+![repo-tabs-issues-global-nav-update](https://github.com/user-attachments/assets/df31637f-06db-498d-8f49-f89995321831)
+![comment-menu-block-user](https://github.com/user-attachments/assets/91693864-8785-4093-9e0c-a35c0cf2b4ca)
 ## Hi there 👋
 
 <!--
